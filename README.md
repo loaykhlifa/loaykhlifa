@@ -1,4 +1,4 @@
-💡 Khalifa Louay | Electrical Engineering Student | Tech Enthusiast | AI Passionate
+💡 Louay Khalifa | Electrical Engineering Student | Tech Enthusiast | AI Passionate
 
 👋 Welcome to my GitHub! I'm an Electrical Engineering student with a deep enthusiasm for technology and innovation. My passion lies in leveraging Artificial Intelligence and advanced engineering solutions to solve real-world challenges.
 
